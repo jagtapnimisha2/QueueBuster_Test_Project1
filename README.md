@@ -12,3 +12,7 @@
 ![image](https://github.com/jagtapnimisha2/QueueBuster_Test_Project1/assets/120504401/6b3cb054-1b6c-4385-bcb7-2e75aad427e3)
 
 ![image](https://github.com/jagtapnimisha2/QueueBuster_Test_Project1/assets/120504401/dc18ca66-6484-4e28-bcd7-f7bb441d8dbf)
+
+![image](https://github.com/jagtapnimisha2/QueueBuster_Test_Project1/assets/120504401/e20f34aa-614b-45ec-8aef-8e43da5e8fc3)
+
+![image](https://github.com/jagtapnimisha2/QueueBuster_Test_Project1/assets/120504401/92108cb1-61b1-4020-ae11-165413612a4f)
